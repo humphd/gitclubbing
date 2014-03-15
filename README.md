@@ -1,4 +1,4 @@
-gitclubing
+gitclubbing
 ==========
 
 A sample repo for use in GitClub.
