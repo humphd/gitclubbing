@@ -1,4 +1,4 @@
-**Fun Facts About Whales:**
+**FUN FACTS ABOUT WHALES:**
 
 1) When threatened, whale possums sometimes flop onto their sides, lie on the bottom of the ocean with their eyes closed, extend their tongues and generally appear to be dead:
 
