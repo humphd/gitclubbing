@@ -6,5 +6,5 @@
 
 Don't worry! He's alive! He's just messing with you.
 
-2) I recently learned from Giphy, the source of all truth, that [whale possums are psychic.](http://giphy.com/gifs/jRmgXel4zPABy) Who knew?!
+2) I recently learned from giphy, the source of all truth, that [WHALE possums are psychic.](http://giphy.com/gifs/jRmgXel4zPABy) Who knew?!
 
